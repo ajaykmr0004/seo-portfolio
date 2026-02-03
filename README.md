@@ -1,2 +1,2 @@
 # seo-portfolio
-SEO case studies, audits, and workflows based on 3 years of hands-on experience.
+SEO Specialist with 3 years of hands-on experience in on-page SEO, content optimization, and GSC-driven improvements. Open to remote SEO roles.
